@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Paulfox77 owner of Fox's Top Brands URL/ foxstopbrands.com a Shopify powered online store.
+- 👋 Hi, I’m @Paulfox77 owner of Fox's Top Brands foxstopbrands.com a Shopify powered online store.
 - 👀 I’m interested in ServiceNow Platform App Development, Shopify & Web Design...
 Enjoy
 
